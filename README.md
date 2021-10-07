@@ -1,4 +1,5 @@
-One of the last beacons of positivity. (she/her)
-![Samantha](https://user-images.githubusercontent.com/92122911/136460063-042b1d86-8b6a-4cf0-9053-79f62ea5d126.png)
+A man that wants to change for the better. (he/him)
+![Ken](https://user-images.githubusercontent.com/92122911/136461446-afe82962-0af3-4523-94e1-b9c0dde0de3e.png)
 
-Naive and carefree, Samantha browses only the coolest forums and the cutest cat videos. XOXO Darby!
+
+He’s not much of a “softie” as he is a “generally decent individual.” Those are not very common nowadays. 
